@@ -1,5 +1,0 @@
-# Receipes
-
-
- Paneer 
- Potato
